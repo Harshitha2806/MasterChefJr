@@ -1,0 +1,1 @@
+This recipie is for a Red Velvet Cake. A red velvet cake is a traditionally red cake with a chocolate layer covered with ermine icing. 
